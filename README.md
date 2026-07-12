@@ -20,5 +20,21 @@ $${\color{hex}wip{}}$$
 $${\color{hex}wip{}}$$
 $${\color{hex}wip{}}$$
 
+<img width="800" height="450" alt="115264071706907943" src="https://github.com/johnnymolars/R0l011/blob/36e52dc957345d46d9748cdb7d48db23d6d1f132/tumblr_94807cf46571ede320d7758b0357bffc_c2812f38_2048.png" />
+ <p align="center"> 
+
+$${\color{hex}wip{}}$$
+$${\color{hex}wip{}}$$
+$${\color{hex}wip{}}$$
+
+<br/>
+
+$${\color{hex}𑁍ࠬܓ{}}$$
+
+<br/>
+
+$${\color{hex}wip{}}$$
+$${\color{hex}wip{}}$$
+$${\color{hex}wip{}}$$
 
 <img align="right" width="360" height="290" src="https://github.com/johnnymolars/R0l011/blob/36e52dc957345d46d9748cdb7d48db23d6d1f132/tumblr_f3d60e592d8eb7f07b0ddc62dd7ae243_8d4fe9a1_250.gif.webp">
